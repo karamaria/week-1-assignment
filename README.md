@@ -1,1 +1,1 @@
-will add them today, sorry!!
+will add notes today, sorry!! :(
